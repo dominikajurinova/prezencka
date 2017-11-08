@@ -1,0 +1,2 @@
+Roman Blanco
+Dominika Jurinová
